@@ -6,6 +6,8 @@
 
 https://sillysintromelaniethemed.carrd.co
 
+*A*ge R*a*nge . 14-18 *!*
+
 # EXTRA!
 ❕   . *DMS & PINGS : DM's are open! but it depends if my status is ⛔ , late replies!. PINGS are alright for me! unless my status says No.* (discord specific)
 
