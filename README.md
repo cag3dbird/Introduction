@@ -15,5 +15,5 @@ https://sillysintromelaniethemed.carrd.co
 
 [If i didn't respond in ponytown, or disconnected, please simply leave a message in my retrospring instead!](https://retrospring.net/@Aramaa)
 
-![App screenshot](https://64.media.tumblr.com/83cabbb41086e4f05d80c1940fcce243/97c6b23d205e38dd-f7/s540x810/df116b689fa824cda0d87283a7202ab05c418213.gifv)
+![Gif](https://64.media.tumblr.com/83cabbb41086e4f05d80c1940fcce243/97c6b23d205e38dd-f7/s540x810/df116b689fa824cda0d87283a7202ab05c418213.gifv)
 
