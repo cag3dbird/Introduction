@@ -2,7 +2,7 @@
 
 ![App screenshot](https://64.media.tumblr.com/24f2859c7ff9405aa5bdbc7a2b323cce/c2b6eeebc77e4c33-ba/s1280x1920/10dadef9d49979eb087c73513c57133fd93bcaca.pnj)
 
-*୨୧ , , ,* ___C___HECK ___O___UT ___MY___ ___CAR___RD *!!*
+*୨୧ , , ,* *C*HECK *O*UT __MY_ CARRD *!!*
 
 https://sillysintromelaniethemed.carrd.co
 
