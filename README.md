@@ -11,5 +11,5 @@ https://sillysintromelaniethemed.carrd.co
 
 ❔   . *I'm a System! so if i don't act accordingly/out of tone, someone might be fronting! apologize if THEY're rude, HYPERactive, we can't really do anything about that.. But make sure to RESPECT them regardless!*
 
-[If i didn't respond in ponytown, or disconnected, please simply leave a message in my retrospring instead!](https://retrospring.net/@RainbConstellSys)
+[If i didn't respond in ponytown, or disconnected, please simply leave a message in my retrospring instead!](https://retrospring.net/@Aramaa)
 
