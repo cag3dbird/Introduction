@@ -8,6 +8,17 @@ https://sillysintromelaniethemed.carrd.co
 
 *A*ge R*a*nge . 14-18 *!*
 
+
+*Now playing...*      ꨄ
+
+Love For You
+By LOVELI LORI, ovg!
+0:31 ━━━━●───── 02:50
+⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿
+               ılıılıılıılıılıılı
+ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▮▮▮▮  
+
+
 # EXTRA!
 ❕   . *DMS & PINGS : DM's are open! but it depends if my status is ⛔ , late replies!. PINGS are alright for me! unless my status says No.* (discord specific)
 
