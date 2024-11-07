@@ -26,6 +26,7 @@ By LOVELI LORI, ovg!
 
 ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▮▮▮▮  
 
+*C*heck out *my* spotify [playlist](https://open.spotify.com/playlist/7gVX24JvQZCiiRDbz4Fkp0) *!*
 
 # EXTRA!
 ❕   . *DMS & PINGS : DM's are open! but it depends if my status is ⛔ , late replies!. PINGS are alright for me! unless my status says No.* (discord specific)
