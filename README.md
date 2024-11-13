@@ -14,11 +14,11 @@ https://sillysintromelaniethemed.carrd.co
  ⟡ㅤ  ﹒ 🍙 
 🌸 ⠀﹒
 
-[Love For You](https://open.spotify.com/track/3SDJGyVK6sDBkwan0Sxj6R)
+[Lady Killers II](https://open.spotify.com/track/068AyhyvE67qMRsMXLqAnd)
 
-By LOVELI LORI, ovg!
+By G-Eazy
 
-0:31 ━━━━●───── 02:50
+0:14 ━━━━●───── 04:57
 
 ⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿
             
