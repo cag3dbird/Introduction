@@ -7,6 +7,8 @@
 https://sillysintromelaniethemed.carrd.co
 
 *A*ge R*a*nge . 14-18 *!*
+  ₊   I'm genderfluid!  ,  
+    .  Bisexual ^_^
 
 
 *Now playing...*      ꨄ
