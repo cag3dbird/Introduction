@@ -2,7 +2,7 @@
 
 ![App screenshot](https://64.media.tumblr.com/f024faf0d3ac448abd9968670d35eee1/3e44826761094ed6-94/s2048x3072/bc61fb75d9cb2814e81f1bbd4689624a69c7cea5.jpg)
 
-*୨୧ , , ,* *C*ARRD STILL O*N TH*E MAKING *!!* 
+*୨୧ , , ,*  ***NEW*** *C*ARRD STILL O*N TH*E M***AKIN***G *!!* 
 
 *A*ge R*a*nge . 14-18 *!*
 
