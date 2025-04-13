@@ -4,7 +4,7 @@
 
 *୨୧ , , ,*  ***C****HECK* *O*UT ***MY*** [***C****ARRD*](https://cag3dteddy-bear.carrd.co) *!!* 
 
-*A*ge R*a*nge . 14-18 *!*
+*I'm an adult* *!*
 
 ₊   I'm genderfluid!  ,  
 
