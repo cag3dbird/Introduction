@@ -34,7 +34,3 @@ By G-Eazy
 ❕   . *DMS & PINGS : DM's are open! but it depends if my status is ⛔ , late replies!. PINGS are alright for me! unless my status says No.* (discord specific)
 
 ❔   . *I'm a System! so if i don't act accordingly/out of tone, someone might be fronting! apologize if THEY're rude, HYPERactive, we can't really do anything about that.. But make sure to RESPECT them regardless!*
-
-[If i didn't respond in ponytown, or disconnected, please simply leave a message in my retrospring instead!](https://retrospring.net/@Aramaa)
-
-
